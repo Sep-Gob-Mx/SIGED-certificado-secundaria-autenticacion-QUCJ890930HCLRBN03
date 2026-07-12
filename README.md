@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-QUCJ890930HCLRBN03
+QUCJ890930HCLRBN03
